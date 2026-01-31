@@ -1,0 +1,3 @@
+Nguyễn Trần Xuân Bắc
+23810310100
+D18CNPM2
